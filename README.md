@@ -19,7 +19,7 @@ Sou uma pessoa apaixonada por tecnologia e ciência. Desde minha adolescência t
 👯‍♀️ Procuro colaborar em projetos que tenham impacto social, que ajude a mim e a meus colegas desenvolverem suas habilidades e mostrarem o seu melhor!
 
 
-📫 Como entrar em contato comigo: E-mail, Linkedin, Discord... Você que manda!
+📫 Como entrar em contato comigo: Redirecionamento para meu perfil do Linkedin no botão acima.
 
 
 ## 🛠 Habilidades
